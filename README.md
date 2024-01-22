@@ -1,2 +1,2 @@
 # wolez
-www.3dmediaadv.com/tarif-pajak-reklame
+www.3dmediaadv.com
